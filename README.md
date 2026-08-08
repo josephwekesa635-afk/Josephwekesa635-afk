@@ -1,4 +1,4 @@
-Hi there, I'm Joseph 
+Hello, I'm Joseph 
 
 Public Health Professional | Epidemiologist & Health Data Specialist |  AI for Health 
 
